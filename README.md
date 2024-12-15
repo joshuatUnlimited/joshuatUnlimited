@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on *insert bs inspirational quote here*
 - 📫 My email: tobelemjoshua@gmail.com
 - 😄 Pronouns: I don't care
-- ⚡ Fun fact: You have 2 braincells, i have 2431686921
+- ⚡ Fun fact: You have 2 braincells, i have 194631686921
 
 <!---
 joshuatUnlimited/joshuatUnlimited is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
